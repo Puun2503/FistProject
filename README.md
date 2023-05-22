@@ -1,2 +1,2 @@
 # FistProject
-เกมScrathโดยผมเอง
+EiEI
